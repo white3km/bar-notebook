@@ -9,7 +9,7 @@
 
 ## New York Sour
 
-Shake everything (except red white) with ice, add red white as floater with spoon
+Shake everything (except red wine) with ice, add red wine as floater with spoon
 
 - 1 1/2 oz bourbon
 - 3/4 oz lemon juice
@@ -19,7 +19,7 @@ Shake everything (except red white) with ice, add red white as floater with spoo
 
 ## Old Fashioned
 
-- 2 oz bouron
+- 2 oz bourbon
 - 1/2 oz demerara syrup
 - 4 dashes angostura bitters
 - orange peel

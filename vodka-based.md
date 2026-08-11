@@ -23,5 +23,5 @@
 ## Moscow Mule
 
 - 2 oz vodka
-- 1/2 oz lime jice
+- 1/2 oz lime juice
 - 3 oz ginger beer
